@@ -4,5 +4,6 @@ Screenshots from my applications and some for courses that I've been instructor,
 Contact: 
 Fernanda Ochoa
 monsh8a@gmail.com
-https://mx.linkedin.com/in/fernandaochoa8
+https://mx.linkedin.com/in/fernandaochoa8
+
 
